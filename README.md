@@ -1,1 +1,1 @@
-# gb
+#aku sayang mama
